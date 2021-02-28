@@ -10,6 +10,4 @@ There have been a few hiccups in my journey, for instance when I tried getting v
 
 The world is becoming more and more conducive to a vegan diet as time passes, and that has been so exciting! I remember buying a bunch of shares the day Beyond Meat went public and I was elated when there was so much buzz around it and it was mainstream news! Once in a line at Burger King in the airport, all four people in front of me ordered the Impossible Whopper, which was pretty amusing as well. Back in India too, there are more and more vegan restaurants and bakeries which were unheard of when I was growing up. I absolutely love being vegan and I am thrilled by how embracing the future looks for vegans and the veganism movement. Going vegan was the best decision of my life, and I’m eager to share everything I’ve learned along the way and things I’m learning every day!
 
--Pooja
-
   
